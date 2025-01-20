@@ -49,3 +49,17 @@ It wasn’t just about ideas—it was about enjoying the process and making sure
 - **App Dev Emulator**
 - **Interior Design App**
 
+## FYP Update: Remembering We Actually Have Work to Do 🤦‍♂️  
+
+After spending two whole days doing absolutely nothing productive (unless you count scrolling memes😁),
+we suddenly remembered, “Oh right, we have an FYP to work on!😯” So, on January 20, 2025, we decided to do something (for now😊).  
+
+**Today, I actually did something useful—I reached out to the FYP manager of our university.
+ My HOD suggested that I should email him with the ideas we discussed (yes, the ones we came up with between jokes and chaos).
+ So, I asked if any of them were good enough to work on or if he had a golden idea up his sleeve for us.**  
+
+Now, we’re waiting for a response. Fingers crossed it’s not, “Please come up with better ideas.” 🤞  
+
+More updates (and probably more jokes) to come soon! 🚀 Stay tuned!  
+
+

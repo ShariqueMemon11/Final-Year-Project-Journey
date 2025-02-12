@@ -63,3 +63,30 @@ Now, we’re waiting for a response. Fingers crossed it’s not, “Please come 
 More updates (and probably more jokes) to come soon! 🚀 Stay tuned!  
 
 
+## 🚀 The Big Decision  
+
+After a lot of back-and-forth (and probably way too many snack breaks), we finally locked in our **FYP idea**! 🎯  
+We’ll reveal more details soon, but let’s just say it involves **cutting-edge tech, problem-solving, and a sprinkle of genius.**  
+
+Oh, and did we mention? We now have our **supervisor**—the **Dean himself**—and our **co-supervisor, Mr. Atif** (who we hope won’t regret taking us on).  
+
+---
+
+## ⏳ The Clock is Ticking!  
+
+Phase 1 of our FYP is due in the **2nd or 3rd week of March**, which means:  
+
+- 🚫 **No more procrastination (hopefully)**  
+- 🔥 **Serious work mode activated**  
+- 😂 **Maybe fewer jokes? (Nah, never mind.)**  
+
+---
+
+## 📚 Leveling Up  
+
+To make sure we actually know what we’re doing, we’ve started learning **Flutter** and **Generative AI**, because both are essential for our project.  
+So if you hear us talking about **widgets, state management, or AI models**, just know—we’re totally *not* confused (okay, maybe just a little).  
+
+---
+
+## 📢 More updates (and probably more jokes) to come soon! Stay tuned! 🎉  

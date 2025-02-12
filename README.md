@@ -65,10 +65,9 @@ More updates (and probably more jokes) to come soon! 🚀 Stay tuned!
 
 ## 🚀 The Big Decision  
 
-After a lot of back-and-forth (and probably way too many snack breaks), we finally locked in our **FYP idea**! 🎯  
-We’ll reveal more details soon, but let’s just say it involves **cutting-edge tech, problem-solving, and a sprinkle of genius.**  
-
-Oh, and did we mention? We now have our **supervisor**—the **Dean himself**—and our **co-supervisor, Mr. Atif** (who we hope won’t regret taking us on).  
+- After a lot of back-and-forth (and probably way too many snack breaks), we finally locked in our **FYP idea**! 🎯  
+- We’ll reveal more details soon, but let’s just say it involves **cutting-edge tech, problem-solving, and a sprinkle of genius.**  
+- Oh, and did we mention? We now have our **supervisor**—the **Dean himself**—and our **co-supervisor, Mr. Atif** (who we hope won’t regret taking us on).  
 
 ---
 
